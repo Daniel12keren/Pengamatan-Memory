@@ -1,0 +1,2 @@
+# Pengamatan-Memory
+Pengamatan Memory 
